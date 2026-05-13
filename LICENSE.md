@@ -1,4 +1,4 @@
-
+Download Free king legacy Script vip for king legacy today and unlock auto-heal and auto-collect for a superior gaming experience. Whether you're a beginner or a pro, this script
 
 
 
